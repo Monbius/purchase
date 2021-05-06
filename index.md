@@ -14,7 +14,7 @@
 
 ![IMG_20210504_143606_gaitubao_183x200](https://user-images.githubusercontent.com/82256583/116981852-a8e03700-acfa-11eb-843d-8cd589f896c5.jpg)支付宝扫码![img zcool-2_gaitubao_83x62](https://user-images.githubusercontent.com/82256583/116975222-decced80-acf1-11eb-911a-2643abc075a0.gif)
 
-**付款备注QQ号，请确保账号正确**
+**付款备注QQ号，请确保账号无误**
 
 ![IMG_20210504_171128_mh1620127666596](https://user-images.githubusercontent.com/82256583/116997142-ff577080-ad0e-11eb-8b24-1dcca307ab66.jpg)
 
