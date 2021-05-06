@@ -7,12 +7,12 @@
 
 
 ![gaitubao_FpVhTvzUPfq4PyJCy4-hDrhhLrfr](https://user-images.githubusercontent.com/82256583/116981696-77676b80-acfa-11eb-8c69-c3912dee89b5.jpg)
-
-微信扫码
+**微信扫码**
 
 **长按保存图片**
 
-![IMG_20210504_143606_gaitubao_183x200](https://user-images.githubusercontent.com/82256583/116981852-a8e03700-acfa-11eb-843d-8cd589f896c5.jpg)支付宝扫码![img zcool-2_gaitubao_83x62](https://user-images.githubusercontent.com/82256583/116975222-decced80-acf1-11eb-911a-2643abc075a0.gif)
+![IMG_20210506_222841](https://user-images.githubusercontent.com/82256583/117315786-96146080-aeba-11eb-844a-43e12466604b.png)
+**支付宝扫码**![img zcool-2_gaitubao_83x62](https://user-images.githubusercontent.com/82256583/116975222-decced80-acf1-11eb-911a-2643abc075a0.gif)
 
 **付款备注QQ号，请确保账号无误**
 
