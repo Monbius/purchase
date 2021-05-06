@@ -17,7 +17,7 @@
 
 ![IMG_20210504_171128_mh1620127666596](https://user-images.githubusercontent.com/82256583/116997142-ff577080-ad0e-11eb-8b24-1dcca307ab66.jpg)
 
-**下载链接直接发送到QQ，最快一小时内送达，注意查收**
+**下载链接直接发送到QQ，最快一小时内送达，注意查收（含使用教程）**
 
 ![IMG_20210504_172737_mh1620128074830](https://user-images.githubusercontent.com/82256583/116997856-ef8c5c00-ad0f-11eb-9f3d-ad566df16aee.jpg)
 
