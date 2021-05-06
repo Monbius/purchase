@@ -23,6 +23,6 @@
 
 ![2ef4dcba3ee39a94](https://user-images.githubusercontent.com/82256583/116986123-ff03a900-acff-11eb-8b41-4b75216fbe7b.gif)
 
-本站链接：**http://dwz.date/eYve**
+本站链接：**http://t.hk.uy/vH**
 
 有疑问？QQ备注错了？联系QQ：**1606477400**
